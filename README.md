@@ -5,4 +5,4 @@ En Jerry is weer licht geiriteerd
 
 Dit is weer anders
 
-Zouhair moet kappen met die klote nummers
+Zouhair moet kappen met die klote nummers of anders moet hij de bieb uit!
